@@ -1,1 +1,1 @@
-# Learning-Journey-for-AI-and-ML
+![image](https://github.com/user-attachments/assets/54c9aa30-685a-4a09-a10a-8e108cc084f7)<img width="906" alt="image" src="https://github.com/user-attachments/assets/0f96a17b-c71d-4969-bf15-141df09cd438" />
